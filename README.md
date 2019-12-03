@@ -1,0 +1,2 @@
+# akyoga
+Hinter jedem Unternehmen steht eine Geschichte. Unsere war bisher alles andere als gewöhnlich. Wir sind mehr als einmal gestolpert und hingefallen, besonders in der Anfangszeit. Was uns als Team zusammengeschweißt und immer wieder dazu gebracht hat, aufzustehen, war der Wunsch, unsere Fähigkeiten zu perfektionieren und uns als Experten auf unserem Gebiet einen Namen zu machen. Selbst als gewachsenes und solides Unternehmen bilden wir uns immer noch weiter und lernen mit jeder neuen Herausforderung etwas Neues dazu. Und was es nicht alles noch zu lernen gibt!
